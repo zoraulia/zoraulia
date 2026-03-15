@@ -1,4 +1,4 @@
 #### hi, zoe is here 👩🏻‍💻🌆
 
 technology • analytics • risk  
-thriving in the present. chronically offline.
+thriving in the present.
