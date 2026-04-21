@@ -1,4 +1,5 @@
 #### hi, zoe is here 👩🏻‍💻🌆
 
 technology • analytics • risk  
-thriving in the present.
+building analytical solutions using engineering tools
+thriving in the present
